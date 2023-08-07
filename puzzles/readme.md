@@ -1,0 +1,1 @@
+Dodano tylko niektóre kombinacje
